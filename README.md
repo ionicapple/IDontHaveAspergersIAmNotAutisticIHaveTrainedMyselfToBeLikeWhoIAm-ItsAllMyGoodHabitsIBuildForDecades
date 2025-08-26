@@ -1,0 +1,1 @@
+# IDontHaveAspergersIAmNotAutisticIHaveTrainedMyselfToBeLikeWhoIAm-ItsAllMyGoodHabitsIBuildForDecades
